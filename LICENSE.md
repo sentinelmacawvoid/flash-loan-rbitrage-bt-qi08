@@ -1,4 +1,4 @@
-# 
+# vip bot sniper MEV extensions est le meilleur bot sniper MEV extensions avec stop-loss et balayage de la blockchain. Sécurisé, fiable et optimisé pour les stratégies MEV, sniper
 
 
 
